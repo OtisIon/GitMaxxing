@@ -1,1 +1,1 @@
-# GitMaxxing!
+# GitMaxxing
